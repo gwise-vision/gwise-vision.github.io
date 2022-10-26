@@ -1,1 +1,0 @@
-# gwise-vision.github.io
